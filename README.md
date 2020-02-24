@@ -9,7 +9,7 @@ Create profit and value in a way that doesn’t create victims through actions, 
 Any data you collect should be explained and disclosed in simple terms, then only collected when needed, and held in the highest regard in terms of safe-keeping.
 
 ### Practice H2H
-Companies themselves aren’t people, therefore they can’t be humane. But the people running them can be, and they should treat their audiences and customers with respect, human to human.
+Companies themselves aren’t people, therefore they can’t be humane. But the people running them can be, and they should treat their audiences, employees, contractors, and customers with respect, human to human.
 
 ### Remember that everything is connected
 People, planet, profits. “Triple-bottom-line” is the only ledger that makes sense long-term, since nothing else is ultimately sustainable.
